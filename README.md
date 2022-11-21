@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @stranger233375
-- 👀 I’m interested in tabletinnes
+- 👀 I’m interested in ping-pong
 - 📫 How to reach me upc
 
 <!---
